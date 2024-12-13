@@ -54,6 +54,6 @@ Deciding between repairing and replacing your air conditioning unit involves wei
 
 ## Consult a Professional
 
-At Patel Heating & Air Conditioning, we understand the intricacies of air conditioning systems and are here to help. Our experienced technicians can assess your current unit, provide insights into its condition, and help you determine whether furnace repair in canada](https://www.patelheating.ca/) or ac replacement in canada is the best option for your home.
+At Patel Heating & Air Conditioning, we understand the intricacies of air conditioning systems and are here to help. Our experienced technicians can assess your current unit, provide insights into its condition, and help you determine whether [furnace repair in canada](https://www.patelheating.ca/) or ac replacement in canada is the best option for your home.
 
 Contact us today to schedule a consultation! Our team is ready to ensure your home stays cool and comfortable during the hot Canadian summer.
